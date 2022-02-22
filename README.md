@@ -2,4 +2,4 @@
 - 👀 I’m interested in bodybuilding, videogames and ofc coding
 - 🌱 I’m currently learning Python, Java
 - 💞️ I’m looking to collaborate on ----
-- 📫 How to reach me: email-paryzdo20@sps-prosek.cz
+- 📫 How to reach me: email - paryzdo20@sps-prosek.cz
