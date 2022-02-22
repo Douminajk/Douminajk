@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Douminajk
+- 👀 I’m interested in bodybuilding, videogames and ofc coding
+- 🌱 I’m currently learning Python, Java
+- 💞️ I’m looking to collaborate on ----
+- 📫 How to reach me: email
